@@ -25,6 +25,6 @@
 
 ### Contact Information
 
-+ 21-03971@g.batstate-u.edu.ph
++ romeoestoy0101@gmail.com
 + 09502650820
 
