@@ -1,5 +1,3 @@
-![image](https://raw.githubusercontent.com/Romeo0101/portfolio/main/img/github-banner.jpg)
-
 ### Hello
 
     My name is Romeo Delacruz Estoy Jr, 20 years old, from Occidental Mindoro. 
